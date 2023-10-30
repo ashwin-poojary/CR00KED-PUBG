@@ -16,13 +16,13 @@
 
 ***Status: Working! ✅***
 
-![3](https://github.com/ashwin-poojary/CR00KED-PUBG/assets/102166807/3728df45-c090-415f-baba-d1152aaeb5e8)
+![2](https://github.com/ashwin-poojary/CR00KED-PUBG/assets/102166807/c343d390-3789-41a1-b7bd-d12440fdd86c)
 
 # ⚙️Functions
 
 ***🌟HWID Changer INCLUDED!***
 
-![2](https://github.com/ashwin-poojary/CR00KED-PUBG/assets/102166807/bda3858d-1a7e-4f31-a55d-790b9f4cbfa3)
+![3](https://github.com/ashwin-poojary/CR00KED-PUBG/assets/102166807/b3f600ae-e94a-4cd4-b628-20d612617883)
 
 ### 📌Aim-bot
 
